@@ -7,6 +7,6 @@
 
 Подборки музыки от участников культа:<br>
 Rinoku - [Отборный блек метал - Яндекс Музыка](https://music.yandex.ru/users/r1n0ku/playlists/1000) <br>
-andef. - ... <br>
+andef. - [Отборный шансон - Яндекс Музыка](https://music.yandex.ru/users/andefandef/playlists/1000) <br>
 <br>
 ![chocho](https://cdn.discordapp.com/attachments/917528169374961725/971506148907823114/unknown.png)
